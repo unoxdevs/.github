@@ -1,1 +1,1 @@
-![Banner](https://i.hizliresim.com/146682v.png)
+![Banner](https://i.hizliresim.com/6bidk1h.png)
