@@ -1,1 +1,1 @@
-![Banner](https://i.hizliresim.com/6bidk1h.png)
+![Banner](https://cdn.discordapp.com/attachments/1136591322208272385/1172625512863117422/unoxdevs-banner.png?ex=6560ff9c&is=654e8a9c&hm=a30d9d15967ccc1c704d8f487b651e8422c29af8dff3e26316982f5635ce9e8e&)
